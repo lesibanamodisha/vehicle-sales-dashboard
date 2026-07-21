@@ -154,6 +154,6 @@ Junior Data Analyst
 - Dashboard Design
 - Business Intelligence
 
-LinkedIn: *(Add your LinkedIn profile)*
+LinkedIn: Lesibana Modisha Jr
 
-GitHub: *(Add your GitHub profile)*
+
